@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-## Hi there, I am André Soares👋 
+## Hi there, I am André👋 
 
 ### About Me 🤙 
 
